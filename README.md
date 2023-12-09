@@ -16,7 +16,7 @@ Best tool so far, for 30d *Instagram* profiles bans.
 
 <img align="right" alt="Coding" width="580" src="https://i.postimg.cc/ZYvknpkP/Screenshot-from-2023-12-07-20-36-12.png">
 
-***[https://www.youtube.com/watch?v=LLq2Kg5BlhU](https://www.veed.io/view/7721d3b7-756b-4f98-b417-be39b22cca01)***
+***[https://www.youtube.com/watch?v=LLq2Kg5BlhU](https://www.tiktok.com/@v1snj4/video/7310200128156060933)***
 
 To buy subscription, or test the tool, contact me on any of my social accounts.
 
